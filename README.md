@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MistweaverHealer
-- 👀 I’m interested in gaminmg and problem solving via programming
+- 👀 I’m interested in gaming and problem solving via programming
 - 🌱 I’m currently learning everything I need to complete a task successfully
 - 💞️ I’m looking to collaborate on anything that will enhance my skills
 - 📫 How to reach me mistweaverhealer@yahoo.com
